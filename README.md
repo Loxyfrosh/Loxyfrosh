@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Loxyfrosh
+- 👀 I’m interested in AI,and bit
+- 🌱 I’m currently learning graphics design 
+- 💞️ I’m looking to collaborate on Bots
+- 📫 How to reach me 
